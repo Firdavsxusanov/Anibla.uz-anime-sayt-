@@ -1,1 +1,1 @@
-# Anibla.uz-anime-sayt-
+# Anibla.uz anime-sayt
